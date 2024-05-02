@@ -1,5 +1,6 @@
 # 💫 About Me:
-hi this is Nitish Janga ill complete graduation in CS from Sirsa Haryana <br>and I also complete cyber security {WPT, APT, PT, CCNA, CEH and forensics }from Lucknow UP<br>I also work as full stack developer as an intern.<br>curtly i am working as Digital marketing Traner in Haryana.
+hi this is Nitish Janga ill complete graduation in CS from Sirsa Haryana <br>and I also complete cyber security {WPT, APT, PT, CCNA, CEH and forensics }from Lucknow UP<br>I also work as full stack developer as an intern.<br>curtly i am working as Digital marketing Traner in Haryana. 
+<br> <a href="http://http://nitishjangra.rf.gd//">MORE ABOUT ME </a>
 
 
 ## 🌐 Socials:
